@@ -84,8 +84,11 @@ Créez des **comparatifs produits** et **avis clients** avec vos liens affiliés
 ## Comment Activer Votre Réduction À Vie
 
 **ÉTAPE 1 :** Créez votre compte [WISEWAND](https://wisewand.ai/?fpr=ludo75)
+
 **ÉTAPE 2 :** Choisissez votre plan (Explorer recommandé pour commencer)
+
 **ÉTAPE 3 :** Entrez le code `Lancement24h` dans "Code Promo"
+
 **ÉTAPE 4 :** Validez et profitez de -10% À VIE
 
 ⏰ **ATTENTION :** Ce code oublié pourrait être désactivé à tout moment quand l'équipe s'en apercevra.
